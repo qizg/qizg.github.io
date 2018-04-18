@@ -1,2 +1,2 @@
 Creating a new branch is quick and simple.
-updtae
+updtae a good software
